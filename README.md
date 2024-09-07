@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Lena
+- 👋 Hi, I’m Ewan
 - 👀 I’m interested in new technologies, music, literature 🎶
 - 🌱 I’m currently learning web technology 👨‍💻
 - 📫 How to reach me @Ko2ll2ap8s
